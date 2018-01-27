@@ -1,2 +1,0 @@
-# Designers
-International Designers is a Group of an uncounted Designers with an amazing, Special skills in all kind Designing such as :  Web Develpement / Photoshop / Mapping ...etc. We are trying to make things easier for some people who they are always looking for this kind of services.  Also the group founder is @Kenny his the one who brought the idea and working on it with his crew to make it better.  Date of Creation : 24/01/2017
